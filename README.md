@@ -6,6 +6,15 @@
 
 </br>
 
+# Team Member 
+Team Leader
+🐢Me
+Team members
+🦎Dongju
+🐍Seungwook
+🐊Woojin
+_____________________________________________________________________________
+
 # 🎉 Purpose 
 
  ![14](https://user-images.githubusercontent.com/37481441/213847697-44844f89-7808-4577-979c-d2dfbfbbb892.PNG)
