@@ -10,15 +10,15 @@
 
 Team Leader
 
-🐢Me
+🐉Me
 
 Team members
 
 🦎Dongju
 
-🐍Seungwook
+🐢Seungwook
 
-🐊Woojin
+🐍Woojin
 _____________________________________________________________________________
 
 # 🎉 Purpose 
