@@ -56,12 +56,11 @@ _____________________________________________________________________________
 
 # 🏆 Grand Prize & WINNER!!!!
 
-![image](https://user-images.githubusercontent.com/37481441/216773161-de7fed34-dd36-4ddf-812e-12971a6358ad.png)
+![1](https://github.com/lala-david/4_Drone_Rush/assets/37481441/433d1c3a-cccd-41aa-9d99-6afb4f145497)
 
 <br>
 </br>
 
-![uzui-demon-slayer-uzui-tengen](https://user-images.githubusercontent.com/37481441/216773206-69a7fda0-7b4e-4ebb-8e55-bb8106fdcda9.gif)
 
 _____________________________________________________________________________ 
 
